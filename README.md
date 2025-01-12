@@ -1,0 +1,19 @@
+- 👋 Hi, I’m @1whotalkswithGod
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ... 
+
+- 
+<!---
+1whotalkswithGod/1whotalkswithGod is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+Hello, im Eric, my interests involve being artistically abstract. 
+I am currently working on everything ive never known to learn
+I will collaborate on conmections, unity, and mastering peace with all
+Reqching me is a good thing now that i know im already being reached out too, thanks. 
+Us, We, Them
+Facts are fun, thanks from the entirety of my soul  
